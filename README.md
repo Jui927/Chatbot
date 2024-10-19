@@ -74,7 +74,14 @@ I would like to express my gratitude to my friend [Piyush](https://github.com/Pi
 
 
 # Contact
-[MY MAIL ID](shahajui92001@gmail.com)
+Email: [mail id](shahajui92001@gmail.com) 
+
+Github profile :  [id](https://github.com/Jui927) 
+
+LinkedIn Profile: [id](https://www.linkedin.com/in/jui-shah09/) 
+
+Portfoilio: [id](https://juishaha.freewebhostmost.com/) 
+
 
 
 
